@@ -1,3 +1,3 @@
-Mathieu Guldner poro
-Pierre Teilhard le boss
-Angelin Versini zbra zbra
+Mathieu Guldner
+Pierre Teilhard
+Angelin Versini
